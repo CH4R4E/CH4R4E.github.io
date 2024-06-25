@@ -1,3 +1,6 @@
+> [!IMPORTANT]
+This is made for a school activity. However, I was inspired to continue to add more information, creating a website about one of my favorite artists. Thank you.
+
 # Twenty One Pilots
 
 
