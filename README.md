@@ -22,7 +22,7 @@ Their songs "Ride" and "Stressed Out", from the Blurryface album, and 'Heathens"
 - Trench - (2018)
 - Scaled And Icy - (2021)
 - Clancy - (2024)
-
+- Breach - (2025)
 
 ## Album Covers
 (Oldest to Newest)
